@@ -24,4 +24,4 @@ I optimize for learning over opinions and clarity over complexity.
 
 ## Find me
 
-💼 [LinkedIn](https://www.linkedin.com/in/ellanguyen-isp/) · 📫 [Email](mailto:ellanguyen.isp@gmail.com) · 🌐 [Portfolio](https://ella-nguyen.vercel.app/) · ✍️ [Substack](https://throughtheliness.substack.com/)
+💼 [LinkedIn](https://www.linkedin.com/in/ellanguyen-isp/) · 📫 [Email](mailto:ellanguyen.isp@gmail.com) · ✍️ [Substack](https://throughtheliness.substack.com/)
